@@ -10,5 +10,5 @@
 </h3>
 
 <h3>
-  "Em tudo que faças, sê tudo todo" -Pessoa, Fernando
+  "Em tudo que faças, sê tu todo" -Pessoa, Fernando
  </h3>
